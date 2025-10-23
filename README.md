@@ -1,0 +1,1 @@
+# mmangamodester-ops-ICS-Quadratic-Grader-modester-mmanga
